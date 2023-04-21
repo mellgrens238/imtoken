@@ -1,12 +1,8 @@
-谷歌广告代运营
-欢迎来到我们的页面！我们的团队拥有一群经验丰富、专业的运营人员，致力于为各种行业的产品提供高效的广告运营方案。
-
-服务亮点
-专业的运营团队，具备丰富的谷歌广告运营经验
-定制化的广告策略以满足不同客户需求，不限行业！！！
-优化广告投放效果，提升ROI，助您的业务迅速成长
-支持广告过审后付款，让您的合作更加放心
-联系我们
-如果您对我们的服务感兴趣，想要进一步了解或者有任何疑问，请通过以下Telegram链接与我们取得联系：
-
-<a href="https://t.me/cxgoogle" rel="nofollow">点击这里在Telegram上与我交流</a>
+<h1 tabindex="-1" dir="auto">资产安全，悉心守护</h1>
+已更新最新版本，欢迎下载体验全新中文版。<div>
+达到在全球市场的创新和成长，探索和应用前沿的技术。
+<h1 tabindex="-1" dir="auto">ImToken指定下載地址</h1>
+安卓手机下載：<a href="https://token-apk.com/" rel="nofollow">點擊 下載</a><div>
+IOS苹果下載：<a href="https://token-apk.com/" rel="nofollow">點擊 下載</a>
+<h1 tabindex="-1" dir="auto"></h1>
+<img src="https://lh3.googleusercontent.com/HxZJwRAQ0pHpPEp0kxKJwnWuF9SQHRmSnvjV6vETVoY3048FE_RhA0ActbwKYbFZbmNavtZkTup36YWIj30Iwk_7Vm7K4PHcOSMw_oArEnQ_WjSL2G32v1-S6SWvtBE5Vw=w710" class="HxhGpf" style="width: 710px; " title="" alt="">
